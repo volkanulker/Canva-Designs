@@ -1,2 +1,2 @@
 # Designs
-Some of my designs from Canva
+Some of my designs from https://www.canva.com .
